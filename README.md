@@ -1,1 +1,1 @@
-Daniel Oyaso
+Daniel Oyasod
