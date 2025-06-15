@@ -1,1 +1,1 @@
-Danie
+Daniel
